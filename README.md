@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm a design thinking leader and engineering hybrid. I develop tools that democratize design practices across organizations to enable teams to understand the design process and how it's integrated at each phase.
+I'm an experience designer and engineer. I develop tools that democratize design practices across organizations to enable teams to understand the design process and how it's integrated at each phase.
 
 I work with some notable companies from across Africa including Equity Group, Safaricom PLC, Absa Mauritius, KenyaBuzz, KCB Group (for KCB Bank, Vooma & National Bank), Old Mutual Nigeria, Nation Media Group, ZooshPay, Britam, Airtel Kenya, Radio Africa Group, Botho University Botswana, United Capital Nigeria, Better Games Zambia & Kuwazo Capital Ltd.
 
