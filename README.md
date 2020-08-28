@@ -9,6 +9,7 @@ I work with some notable companies from across Africa including Equity Group, Sa
 [LinkedIn](https://www.linkedin.com/in/kelvinkamau/) • 
 [Twitter](https://twitter.com/HelloKamau) • 
 [Portfolio](https://drive.google.com/file/d/1-VsxV-Pdl2eFy4J5oDPBCn-V9JGoTVP9/view)
+![Profile views](https://gpvc.arturio.dev/kelvinkamau)
 
 
 <center>
